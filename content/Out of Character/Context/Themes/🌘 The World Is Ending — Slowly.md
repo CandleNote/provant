@@ -1,0 +1,1 @@
+Not with fire or prophecy, but with quiet decay. Systems fail, hope fades, and people adapt to collapse as if it were normal. The end comes not with panic, but acceptance.

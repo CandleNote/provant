@@ -1,0 +1,1 @@
+Time erodes everything — bodies, memories, kingdoms, promises. The slow passage of years can be more terrifying than any monster, as opportunities fade and chances disappear.

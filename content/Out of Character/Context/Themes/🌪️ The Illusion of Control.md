@@ -1,0 +1,1 @@
+Plans fail. Systems collapse. The belief that events can be perfectly managed is a comforting lie. True strength lies not in control, but in adaptation — in choosing how to respond when everything falls apart.

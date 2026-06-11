@@ -1,0 +1,8 @@
+After the [[The Lament of the Fallen]] incident and the ascension of [[Apollyon, The Guardian of Flame]], some people began to bleed golden blood. This phenomenon appears to be linked to individuals who possess self-destructive tendencies. Those who exhibit such behaviors seem to have been indirectly blessed by [[Apollyon, The Guardian of Flame|Apollyon]], granting them additional strength, whether magical or martial, as well as enhanced resilience.
+
+The exact nature of this blessing remains poorly understood, though many scholars believe it to be a consequence of Apollyon's ascension and the ideals he embodies.
+
+#### Personality of Bearer
+Those granted Golden Blood often possess personalities that lean toward self-destructive behavior. This tendency can manifest in many different ways. For some, it appears as extreme self-sacrifice, where they consistently place the well-being of others above their own. For others, it may take the form of reckless determination, an inability to value their own safety, or a willingness to endure immense suffering in pursuit of their goals.
+
+Despite this common trait, not all bearers are the same. What unites them is not the exact form of their behavior, but a tendency to disregard their own well-being for the sake of something they consider more important than themselves. Which is believe to be connected to [[Apollyon, The Guardian of Flame]] own personality and ideals.

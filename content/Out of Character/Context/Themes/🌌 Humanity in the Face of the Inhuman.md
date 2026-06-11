@@ -1,0 +1,1 @@
+When confronted with gods, monsters, or cosmic forces, humanity feels small. Yet emotion, connection, and choice remain powerful. The question is not whether mortals can win — but whether they can remain human while trying.

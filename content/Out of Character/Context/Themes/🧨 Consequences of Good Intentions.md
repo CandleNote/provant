@@ -1,0 +1,1 @@
+Disaster does not require malice. Good intentions, poorly executed, can destroy just as thoroughly as cruelty. The road to ruin is paved with efforts to help.

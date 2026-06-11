@@ -1,0 +1,1 @@
+Power or position forces choices that affect others. Even inaction becomes a decision. The burden of leadership is not glory, but the knowledge that someone will suffer because of what you choose.

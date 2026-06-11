@@ -1,0 +1,1 @@
+Whenever a **Wizard** levels up, you add **2 (two) spells** to your spellbook. These spells must be **no higher than the maximum spell level** you can cast at your current level.

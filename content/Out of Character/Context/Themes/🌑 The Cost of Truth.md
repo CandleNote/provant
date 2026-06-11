@@ -1,0 +1,1 @@
+Some truths should never be uncovered. Others demand sacrifice to reveal. Knowing more does not always bring peace — sometimes it only deepens the wound.

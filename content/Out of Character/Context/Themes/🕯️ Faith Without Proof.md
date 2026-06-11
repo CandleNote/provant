@@ -1,0 +1,1 @@
+Belief persists even when evidence is gone. Faith can inspire miracles or justify horrors. The question is not whether belief is true, but what people will do for it.

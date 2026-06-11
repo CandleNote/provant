@@ -1,0 +1,1 @@
+The world is cruel, but people choose to be kind anyway.

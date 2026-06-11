@@ -1,0 +1,1 @@
+Love gives strength, but also vulnerability. It creates hesitation, fear, and sacrifice. Enemies do not need weapons when they can threaten what you care about.

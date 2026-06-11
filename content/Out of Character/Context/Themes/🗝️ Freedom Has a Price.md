@@ -1,0 +1,1 @@
+True freedom demands sacrifice — safety, comfort, or belonging. Chains are easy to wear when they protect you from fear. Breaking them often means standing alone.

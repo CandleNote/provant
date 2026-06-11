@@ -1,0 +1,1 @@
+Family by birth does not guarantee loyalty, love, or safety. True bonds are forged through shared struggle, not lineage. Sometimes the people meant to protect you are the ones you must escape.

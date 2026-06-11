@@ -1,0 +1,5 @@
+Memes are events, people, ideas, or objects that become changed/shifted through belief, stories, and communication. They are not the full truth, as Memes are created from [[Memoria]] and [[Imaginatio]], forming a fictionalized version of reality shaped by collective perception.
+
+In some cases, a Meme can become powerful enough to physically manifest through [[Memoria]] or [[Imaginatio]]. These manifestations are known as [[Memetic Creature|Memetic Creatures]], beings sustained by shared thoughts, memories, fears, or imagination. The stronger and more widespread the belief becomes, the stronger the Meme may grow.
+
+While Memes themselves are common, Memes powerful enough to be used as magical energy are rare. They require widespread influence and strong collective belief. Throughout history, some [[Enchanter|Enchanters]] have attempted to artificially spread and strengthen Memes by manipulating the minds of others. However, this can sometimes result in the creation of a [[Memetic Virus]], where a Meme spreads uncontrollably and begins distorting minds and perception.

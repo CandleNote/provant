@@ -1,0 +1,3 @@
+The **Seed of Dawnbreaker** is the name given to the scattered fragments of the [[Blade of Dawnbreaker]]. Each fragment is fused with the blood of [[Euphony, The Guardian of Melody]] and carries powerful [[Magical Energy]]. These relics appear in many shapes and sizes, and larger fragments usually hold stronger power.
+
+The Seeds of Dawnbreaker come from the weapon once wielded by [[Apollyon, The Guardian of Flame]] during the [[Second Titanfall Trials]]. As pieces of the [[Blade of Dawnbreaker]], a weapon created to kill other [[Guardians of Titanfall]], they carry the same destructive energy tied to [[Apollyon, The Guardian of Flame]]. These relics are among the few powerful artifacts left behind after the [[Second Titanfall Trials]].

@@ -1,0 +1,1 @@
+Harm creates harm, and vengeance breeds more vengeance. Every act of retaliation feels justified until the line between victim and aggressor disappears. The world moves in circles, repeating the same mistakes under new names, unless someone chooses to stop the wheel at great personal cost.

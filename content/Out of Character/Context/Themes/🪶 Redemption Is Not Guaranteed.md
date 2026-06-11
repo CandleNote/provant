@@ -1,0 +1,1 @@
+Seeking redemption does not ensure forgiveness. Some sins leave scars too deep to heal, and the world may never acknowledge one’s change. Redemption becomes a personal choice, not a reward.

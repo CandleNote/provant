@@ -1,0 +1,3 @@
+Vel Banos Sora, or Vel is a one of the important induvial a part of the [[Adventurer's Guild]], she join after the attack in the Delstanvian Adventuring Academy. This make her join the [[OPAL Group]] which is a hidden group, and climb the rank easily due to her reckless, and uncaring nature.
+
+Vel back in the day use to be follower of [[Talia the Weaver]] after a bunch of nuns took care of her when her parents died to a diseases, although she lean more towards the [[Six Stars of Fate]], but due to such matter after her adventure with the [[Fate & Ambition Corp]], she was able to become a [[A Blessed Sacred One]], which are people who are able to access two pantheon power at once.

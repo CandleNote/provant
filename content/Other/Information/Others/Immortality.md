@@ -1,0 +1,5 @@
+Immortality is a creature who is unable to die through age itself. This term does not mean that the creature is unable to be killed through direct means, such as from a clash/battle or sometime illness although illness is quite rare as those who master immortality have perfected their body from dying from such matter.
+### Consequences of Immortality
+Immortality have many effect for anyone who achieve it. One of the major one is the loss of their sanity as one [[Herrschers]] proclaim from dealing with these immortals, alongside immortality does not guarantee that the immortal is free from sickness or illness or simply decay of the body and the pain gain from these bodily failure. Making their endless existence painful.
+
+Alongside immortality does not effect the [[Soul]], which is why lossing one sanity is quite common. As the [[Soul]] is where one's mind is located.  

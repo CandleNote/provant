@@ -1,0 +1,1 @@
+Nothing is as it seems. Events are guided by unseen hands, and even freedom may be an illusion. Trust becomes dangerous when every word could be a lie.

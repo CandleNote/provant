@@ -1,0 +1,1 @@
+Power is never neutral. It tempts, reshapes, and exposes what already exists within a person. The more power one gains, the harder it becomes to tell whether actions are driven by necessity, ambition, or fear of losing control.

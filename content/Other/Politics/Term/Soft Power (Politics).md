@@ -1,0 +1,1 @@
+In politics, particularly in international politics, soft power is the ability to influence or persuade others through the use of persuasive means, as opposed to the use of force or coercion, which is often associated with [[Hard Power (Politics)]]. 

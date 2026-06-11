@@ -1,0 +1,1 @@
+The Ranger Class at 5th level or above can now cast Hunter's Mark without using the need of [[Concentration Component]] alongside [[Verbal Component]]

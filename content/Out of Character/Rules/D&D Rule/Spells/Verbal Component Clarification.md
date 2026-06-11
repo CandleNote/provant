@@ -1,0 +1,1 @@
+Verbal spells is hearable up to 60ft, and any creature that has the spells can tell what spell you have casted. Same applies in reverse.

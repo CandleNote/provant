@@ -1,0 +1,1 @@
+Living another day demands compromise. Morality erodes not in grand betrayals, but in small, repeated choices made to endure. Survival becomes a negotiation between what is necessary and what is right, until the line between them fades.

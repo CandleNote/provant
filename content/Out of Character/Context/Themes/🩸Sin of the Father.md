@@ -1,0 +1,1 @@
+The past does not stay buried. Actions taken long ago ripple forward, shaping lives that had no say in them. Children inherit grudges, debts, reputations, and consequences they never earned. No one begins with a clean slate, and innocence offers no protection from history’s weight.

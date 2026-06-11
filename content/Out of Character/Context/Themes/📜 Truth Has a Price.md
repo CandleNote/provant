@@ -1,0 +1,1 @@
+Knowledge is never free. Some truths liberate, others destroy, and many do both. The deeper one digs, the more fragile reality becomes. Understanding the truth may cost faith, safety, or the world as it once was.

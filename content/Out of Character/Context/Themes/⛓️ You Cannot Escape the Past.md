@@ -1,0 +1,1 @@
+No matter how far one runs, the past remains. Mistakes linger, names carry weight, and unfinished business waits patiently. Redemption is not granted by distance or time — only by facing what was left behind.

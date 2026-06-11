@@ -1,0 +1,1 @@
+Devotion demands sacrifice. When loyalty to people, ideals, or institutions conflicts with personal ethics, something must be betrayed. The most painful choices are not between good and evil, but between two things that both feel right.

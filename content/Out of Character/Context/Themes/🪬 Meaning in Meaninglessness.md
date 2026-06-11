@@ -1,0 +1,1 @@
+When nothing has inherent purpose, meaning must be chosen. The struggle is not to find destiny, but to decide what matters when none is given.

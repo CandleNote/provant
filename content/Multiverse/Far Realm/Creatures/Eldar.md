@@ -1,0 +1,18 @@
+The **Eldars** are [[Aberration]]s from the [[Far Realm]] that possess the ability to mimic and replicate other creatures, creating twisted copies known as [[Tainted Creature]]s. These creations are often malformed, blob-like imitations of the original being. However, not all [[Tainted Creature]]s are the same, as each Eldar possesses unique abilities that influence the creatures they create.
+
+Although individual Eldars differ greatly from one another, they appear to have formed a loose union. Together, they attempted to invade the [[Plane of Terra]] in order to claim the [[Core of Terra]], a source of immense [[Primordial Magical Energy]]. Eldars require [[Magical Energy]] to create and sustain their [[Tainted Creature]]s, making [[Primordial Magical Energy]], the purest form of magical energy, highly valuable to them.
+
+Much of what is known about the Eldars comes from [[Linnake, The Guardian of Harmony]], a [[Tainted Creature]] who unexpectedly developed a sense of [[Humanity]], allowing her to provide insight into the nature and behavior of her creators.
+#### Innate Desire :
+The Eldars also possess an innate desire to expand. Their species feeds upon the magical energy present within their environment, making the [[Plane of Terra]] an ideal target due to its exceptionally high concentration of magic compared to the other realms of the [[Multiverse]].
+
+This is why [[Tainted Creature]]s serve as the primary method by which the Eldars expand their influence. These creatures are used to eliminate or assimilate any lifeforms that might hinder their growth and spread. Unlike many other [[Aberration]]s, which often rely upon existing lifeforms or civilizations to reproduce and propagate, the Eldars require only [[Magical Energy]] to sustain themselves and create more [[Tainted Creature]]s.
+
+#### Fight Againts Terra :
+The Eldars began their war against Terra within the newly established land of [[Continent of Vallarian|Valla]], a continent created by a group of [[Demi-Gods]]. The Eldars chose [[Continent of Vallarian|Valla]] because it was still young and lacked the concentration of powerful individuals found within [[The Lost Isles]] and [[Titanfall Isle]]. In particular, the recent emergence of [[Apollyon, The Guardian of Flame]] and other [[Guardians of Titanfall]] during [[First Titanfall Trials]] posed a significant threat, as the Eldars believed Apollyon alone possessed enough power to destroy many of them. As a result, they sought to establish a foothold elsewhere before confronting stronger forces.
+
+Before launching a full invasion, the Eldars dispatched [[Linna]], an Eldar capable of transmuting living beings, to conduct reconnaissance. However, the mission ended in failure after [[Naamah, The Guardian of Light]] eliminated her. Despite this, one of Linna's [[Tainted Creature]]s unexpectedly developed [[Humanity]], eventually becoming [[Linnake, The Guardian of Harmony]].
+
+The Eldars initially found success within [[Continent of Vallarian|Valla]] due to the ongoing conflict between the [[Progenitor of Valla]] and the [[Initiator of Valla]], who refused to cooperate with one another. Exploiting this division, the Eldars launched their assault, beginning the [[The Clash Between Valla and Eldar]]. The war lasted for 101 years and devastated much of the continent.
+
+The conflict ultimately ended when the [[Progenitor of Valla]] sacrificed themselves to create an access to the [[Dream Realm]], using it to imprison the Eldars and prevent their further expansion. While this act successfully brought an end to [[The Clash Between Valla and Eldar]], it came at the cost of the Progenitor's life, leaving [[Continent of Vallarian|Valla]] forever changed by the war.

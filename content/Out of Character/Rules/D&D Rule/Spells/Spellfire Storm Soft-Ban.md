@@ -1,0 +1,1 @@
+The [[Spellfire Storm]] (4th Level Spell) is only available to Spellfire Sorcery Subclass due to the major in balance of the spell of [[Spellfire Storm]].

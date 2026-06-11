@@ -1,0 +1,1 @@
+No one is born complete. Identity is shaped by memory, trauma, belief, and choice. Characters are forced to confront who they were, who they are told to be, and who they wish to become.

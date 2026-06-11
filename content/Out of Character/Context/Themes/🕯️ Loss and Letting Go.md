@@ -1,0 +1,1 @@
+Everything ends. People, places, and ideals fade, often before one is ready. The story is not about preventing loss, but learning how to live after it. Grief shapes characters as much as love ever did.

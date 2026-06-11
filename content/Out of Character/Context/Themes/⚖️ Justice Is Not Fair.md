@@ -1,0 +1,1 @@
+Justice is shaped by power, perspective, and circumstance. What is lawful may not be right, and what is right may be unforgivable. Balance is rarely clean.

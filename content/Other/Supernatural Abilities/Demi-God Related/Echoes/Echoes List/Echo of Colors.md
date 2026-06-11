@@ -1,0 +1,1 @@
+You are able to enter Firefly of Colors state during your turn, 
