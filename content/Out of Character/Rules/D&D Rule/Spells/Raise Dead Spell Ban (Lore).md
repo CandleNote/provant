@@ -1,0 +1,1 @@
+The spell [[Raise Dead]] does not exist within the world of Tales of Dasaron. [[Candle Note]] intentionally removed the spell to prevent easy access to resurrection beyond the limitations of [[Revivify]]. This decision was made to ensure that death carries meaningful consequences for both Players and Villains alike.
